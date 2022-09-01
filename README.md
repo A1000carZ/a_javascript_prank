@@ -1,6 +1,6 @@
 # A Prank for devs
 
-Jaja espero a alguien le sirva, es un recurso muy util.
+Jaja espero a alguien le sirva, es un recurso muy util a la hora de ligar 😉.
 
 
 ## 🚀 About Me
